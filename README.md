@@ -1,0 +1,2 @@
+# ashika
+MY RULE
